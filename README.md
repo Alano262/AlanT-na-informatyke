@@ -1,0 +1,1 @@
+# AlanT-na-informatyke
